@@ -1,10 +1,10 @@
-سرعة عالية IPVanish إضافة | مفتاح الإيقاف + إخفاء IP هو أفضل IPVanish إضافة مع مفتاح الإيقاف و إخفاء IP. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/ipvanish-jd46/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
