@@ -1,4 +1,4 @@
-
+High-Speed IPVanish Plugin | kill switch + IP masking is the best IPVanish plugin with kill switch and IP masking. Secure and optimized.
 
 
 
